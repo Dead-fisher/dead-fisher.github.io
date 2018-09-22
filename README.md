@@ -10,6 +10,14 @@ I am **WangYanze** from **CCME**(College of Chemistry and Molecular Engineering)
 
 My hometown is located in **HeBei-HengShui**.
 
+Guitar  player (but beginner)
+
+Anime Fun
+
+
+
+
+
 
 
 ### HOW TO CONTRACT ME
@@ -20,6 +28,12 @@ My hometown is located in **HeBei-HengShui**.
 
 **QQ Number**:1010494414
 
-![https://ws1.sinaimg.cn/large/9150e4e5gw1fat0nyakphj205g07mgll.jpg](src)
 
 
+### WHAT'S MORE
+
+This is my **first** time to do homepage,so.......error is inevitable. ( So sorry )
+
+I'd love to make friends with you.
+
+Thank you for viewing.
